@@ -10,6 +10,4 @@ Meu nome é Lucas Gabriel da Silva Moraes
 
 @Lucas.moraes11@escola.pr.gov.br 
 
-@lucas-moraes
-
-![descrição do GIF](link GIF do Tenor)
+![](https://tenor.com/view/calculating-puzzled-math-confused-confused-look-gif-14677181)
